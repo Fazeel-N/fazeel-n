@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **WordPress , Shopify , HTML5 , CSS3 , Bootstrap , PHP , JavaScript , SaSS , React.js , Angular.js**
 
-- 📫 How to reach me **Fazeelnisar2@gmail.com**
+- 📫 How to reach me **Fazeelnisar855@gmail.com**
 
 - 📄 Know about my experiences [https://www.upwork.com/freelancers/~013cb74aef1ca152d0](https://www.upwork.com/freelancers/~013cb74aef1ca152d0)
 
